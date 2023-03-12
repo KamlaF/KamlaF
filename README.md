@@ -5,7 +5,7 @@
 - 🔭 I’m currently studying front-end development at Noroff school of technology and digital marketing.
 - 😍 I’m striving to learn as much as i can and get my dream job as a front-end developer.
 - 💃 Im a dancer, mom to 2 kids, 1 dog and a cat.
-- ❤️ I love coding 
+- ❤️ I love my kids, developing, learning new things and all the beauty in the world. 
 - 💬 Ask me about anything
 - 📫 How to reach me: Kamilla@askeladdenressurs.no
 
