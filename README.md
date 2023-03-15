@@ -7,7 +7,7 @@
 - 💃 Im a dancer, mom to 2 kids, 1 dog and a cat. 
 - 💬 Ask me about anything
 - 📫 How to reach me: Kamilla@askeladdenressurs.no
-- 👩‍🏫 Portfolio in the making... kamillafagerland.com 
+- 👩‍🏫 Portfolio in the making... www.kamillafagerland.com 
 
 
 
